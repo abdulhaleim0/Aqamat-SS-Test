@@ -1,12 +1,3 @@
-[2:47 pm, 16/06/2026] Abdul Halim: *1. According to the text, when does an element of nature officially become a "resource"?*
- * A) When it exists untouched in the wild
- * B) When humans admire its natural beauty
- * C) When humans add value and utility to it through use
- * D) When it is artificially manufactured by humans
-*2. Which of the following processes transforms a tree into a resource according to the chapter’s definition?*
- * A) Letting it shed its leaves naturally
- * B) Cutting …
-[3:09 pm, 16/06/2026] Abdul Halim: # Examination Question Bank
 ## Module 1: Natural Resources and Their Use
 
 *1. According to the text, when does an element of nature officially become a "resource"?*
